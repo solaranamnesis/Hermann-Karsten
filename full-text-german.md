@@ -1,17 +1,17 @@
 # DIE METEORITE UND IHRE ORGANISMEN
 
-## BON
+## VON
 
-## Brof. Dr. Hermann Karsten
+## Prof. Dr. Hermann Karsten
 
 ### in Schaffhausen
 
-## Mit Ubbildungen
+## Mit Abbildungen
 
-## (Geparatabbrund aus der Beitfsrift: „Die Natur“, Jahrgang 1881, Rr. 14, 15, 16.)
+## (Separatabdruck aus der Zeitschrift: „Die Natur“, Jahrgang 1881, Nr. 14, 15, 16.)
 
-### halle
+### Halle,
 
-### Gebauer-Schwetfsf'sche Buddruderei
+### Gebauer-Schwetschke'sche Buchdruckerei
 
 Welche von allen Naturerscheinungen ist von dem Menschen länger und häusiger nicht nur bemundert, sondern auch gefürchtet worden, als die sporabish austrtenben Meteore: bie
