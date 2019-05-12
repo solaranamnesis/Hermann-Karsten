@@ -14,4 +14,4 @@
 
 ### Gebauer-Schwetschke'sche Buchdruckerei
 
-Welche von allen Naturerscheinungen ist von dem Menschen länger und häusiger nicht nur bemundert, sondern auch gefürchtet worden, als die sporabish austrtenben Meteore: bie
+Welche von allen Naturerscheinungen ist von dem Menschen länger und häufiger nicht nur bewundert, sondern auch gefürchtet worden, als die sporadisch austretenden Meteore: die von Blitz und Donner begleiteten Gewitter und die meistens lautlos und geheimnisvoll dahinziehenden Kometen und Leuchtkugeln?
