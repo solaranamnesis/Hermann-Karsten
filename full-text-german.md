@@ -32,3 +32,4 @@ Es blieb daher, als die annehmbarste Hypothese, nur die 1819 von Chladni aufgest
 
 Schon Chladni vermuthete einen Zusammenhang von Meteoriten und Sternschnuppen mit den Kometen; eine Idee, die wie meistens neue Ideen auf heftigen Widerspruch stieß, jedoch nach 50 Jahren eine Kräftige Stütze, wie es scheint eine Bestätigung, sand in den Berechnungen der Bahnen einiger Sternschnuppenschwärme durch Schiaparelli.
 
+Zwar während des ganzen Jahres sieht man Sternschnuppen als vereinzelte, rasch bewegliche Lichtpunkte die parallelen Bahnen der stetig und monoton am Firmamente vorüberziehenden Fixsterne durchschneiden, aber zu gewissen Zeiten erscheinen sie dem überraschten Auge in größerer Menge, in ganzen Schwärmen.
