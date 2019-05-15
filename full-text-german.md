@@ -48,3 +48,5 @@ Die mikroskopische Forschung entdeckte in diesen Steinen ein Gemenge krystallini
 
 Ueber diese Chondrite mit ihren mannigfachen undefinierbaren Einschlüssen find nun nicht nur Vermuthungen, sondern Ergebnisse mühevollster Forschung, enthalten in einem Epoche machenden Werke: „Die Meteorite und ihre Organismen von Dr. Otto Hahn“, welches kürzlich die Laupp'sche Presse in Tübingen verließ und die Ansicht über die Natur der Meteorsteine in ein neues ganz unerwartetes Licht stellt.
 
+Viele meiner Leser werden sich der von dem selben Verfasser 1879 veröffentlichten Mittheilung über „die Urzelle“ d. h. über die einfachsten organisirten Körper erinnern, welche derselbe in krystallinischen Gesteinen entdeckte. Wer hat dieses Buch gelesen und nicht, ungeachtet seiner zahlreichen Darstellungen der in jenen Urgesteinen gesehenen Pflanzen, gewisse Zweifel gehegt! Selbst in Meteorsteinen sollten Organismen, sollten pflanzliche Gebilde zu erkennen sein. Planzen, deren eine, den Algen und Farrn verwandt, zu Ehren des deutschen Kaisers als _Urania Guilielmi_ beschrieben und auf der 17. Tafel abgebildet wurde.
+
