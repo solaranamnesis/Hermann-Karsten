@@ -94,3 +94,5 @@ Daß diese mit organisirten Körpern durchsetzten Meteoriten vor dem Zusammentre
 
 Vielleicht ist auch die Idee des kosmischen Ursprunges, wenigstens für diese Art von Meteoriten, zu verlassen und wieder auf deren Entstehung als Konglomerate von Meteorstaub oder Passatstaub ähnlicher Materie zurückzugehen, wie sie schon von Musschenbroek, Dominikus Tata, Patrin, Wrede, Egen, v. Hof, Kesselmeyer u. A. vertheidigt wurde, obgleich das Entsthen eines solchen Konglomerates mit unseren heutigen physikalischen Kenntnissen und Erfahrungen noch nicht bis ins Einzelne verfolgt werden kann.
 
+Diese eben genannten Autoren, vorzüglich Kesselmeyer, betrachten die Leuchtkugeln und die aus diesen herabfallenden Meteorite als atmosphärische Sublimationsgebilde der von unseren Vulkanen ausgehauchten Mineraldämpfe; und allerdings hat sich dem analysirenden Chemiker die Flüchtigkeit aller Mineralstoffe zum großen Nachtheile der quantitativen Analyse, bevor diese Eigenschaft fester Körper hinreichend erkannt worden war, nur zu häufig in bedauerlicher Weise bemerkbar gemacht.
+
