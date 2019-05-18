@@ -72,6 +72,6 @@ Dieser Organismus ist von Hahn als Koralle bestimmt worden; er ist sehr ähnlich
 
 Jedenfalls ist dieser Körper keine Druse nadelförmiger oder säulenförmiger Krystalle, wie bisher die Mineralogen meinten, sondern ein organisirtes Gebilde; denn wirkliche Krystalle, die aus verdunstenden oder abkühlenden Lösungen sich ausscheiden, find strukturlos und homogen.
 
-Bon größtem Interesse für die Aufklärung der Natur dieser Organismen der Meteoriten find höchst ähnliche von Paul. F. Reinsch kürzlich in der Steinkohle entdeckte Gebilde; eine Entdeckung, die zu meiner Kenntniß zu bringen der Herr Herausgeber die Güte hatte.
+Von größtem Interesse für die Aufklärung der Natur dieser Organismen der Meteoriten find höchst ähnliche von Paul. F. Reinsch kürzlich in der Steinkohle entdeckte Gebilde; eine Entdeckung, die zu meiner Kenntniß zu bringen der Herr Herausgeber die Güte hatte.
 
 Nach Reinsch's Beobachtung bestehen einzelne Schichten der sächsischen Kohle zu 20 % aus folchen Organismen, ebenso wie die Chondriten-Meteorite zum größtem Theile aus ihnen zusammengesetzt find. Auch die von Reinsch entdeckten Pflanzen find höchst kleine, mikroskopische Gebilde, auch sie kommen in wenigen Formen, aber in größter Anzahl beisammen als Grundlage der betressenden Kohlenslötze vor; z. Th. bestehen sie, gleich dem in Fig. _1_ und _2_ gezeichneten Organismus, aus verästelten, mehr oder minder freie Zellen enthaltenden, konzentrischen Fasern.
