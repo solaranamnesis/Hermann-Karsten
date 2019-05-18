@@ -1,4 +1,4 @@
-# DIE METEORITE UND IHRE ORGANISMEN (1881) by Dr. Hermann Karsten. "THE METEORITE AND ITS ORGANISMS"
+# DIE METEORITE UND IHRE ORGANISMEN (1881) by Dr. Hermann Karsten (1817 - 1908). "THE METEORITE AND ITS ORGANISMS"
 
 Attempt at a translation from the original German to English, I welcome all pull requests of submitted translations and/or edits.
 
