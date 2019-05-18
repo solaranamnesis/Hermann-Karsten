@@ -106,4 +106,5 @@ Verschiedene Thatsachen und Beobachtungen sprechen dafür, daß die Leuchtkugeln
 
 Die Reibung solcher pulverigen Masse, wie sie als Passatstaub beisammen vorkommen, erzeugt ohne Zweifel elektrische Spannung und könnte diese wohl eine Vereinigung desselben veranlassen, eine Vereinigung, die bei Gegenwart genügender Mengen von Wasserdampf vielleicht ohne eigentliche Schmelzung vor sich geht.
 
+Daß die vorausgesetzte Reibung, in die Erdatmosphäre gelangter Körper gegen diese Atmosphäre allein nicht genüge, das Leuchten und die Erhitzung der Meteoriten zu erklären, darauf hat schon 1835 v. Hof aufmerksam gemacht, indem dasselbe nicht in den obersten, dünnsten Luftschichten beginnen und in den untersten dichtesten erlöschen würde, vielmehr bis zum Erreichen der Erdoberfläche mit der stets zunehmenden Fallgeschwindigkeit beständig zunehmen müsse.
 
