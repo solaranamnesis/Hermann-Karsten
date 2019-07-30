@@ -1,6 +1,6 @@
 # DIE METEORITE UND IHRE ORGANISMEN (1881) by Dr. Hermann Karsten (1817 - 1908). "THE METEORITE AND ITS ORGANISMS"
 
-Attempt at a translation of Dr. Hermann Karsten's 1881 work: Die Meteorite und ihre Organismen, from the original (Fraktur) German to English, I welcome all pull requests of submitted translations and/or edits.
+Attempt at a translation of Dr. Hermann Karsten's 1881 work: "Die Meteorite und ihre Organismen", from the original (Fraktur) German to English, I welcome all pull requests of submitted translations and/or edits.
 
 English - Plain Text  
 English - PDF  
