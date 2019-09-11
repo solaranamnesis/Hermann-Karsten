@@ -26,4 +26,6 @@ Likewise, the opinion expressed by other researchers that meteorites are product
 
 It remained, therefore, as the most acceptable hypothesis of those remaining, when in 1819 Chladni denied these luminous meteors and glowing meteor stones falling to Earth their meteorological nature and declared them to be cosmic bodies, with the stars, likely fragments of a shattered larger planet or independent planetary bodies whose orbits approach the Earth's orbit and in their relative smallness follow the attraction of the Earth itself. This idea probably lead to the discoveries, in that period from 1801 to 1807, of the four small planets orbiting in the middle point between Mars and Jupiter, by [Giuseppe] Piazzi, Olbers, and [Karl Ludwig] Harding, also maintaining that these were the shattered remains of a larger planet.
 
+Yet Chladni suspected a connection of the meteorites and shooting stars with the comets; an idea that, like most new ideas, met with fierce opposition but after fifty years of strong support it seems to be confirmed, as found in the calculations of the orbits of some swarms of shooting stars by [Giovanni] Schiaparelli.
+
 ...
