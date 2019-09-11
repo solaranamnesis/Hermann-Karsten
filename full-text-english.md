@@ -30,4 +30,6 @@ Yet Chladni suspected a connection of the meteorites and shooting stars with the
 
 Throughout the year shooting stars are seen only as isolated, rapidly moving points of light, which cut through parallel paths of the fixed stars passing steadily and monotonously in the sky, however at certain times they appear to the surprised eye in great numbers, in whole swarms. The dense swarm appearing on November 12, according to H. A. [Hubert Anson] Newton's investigations, returns, at periods of 33 years, most brilliantly and numerous, appearing almost like a shower of light sparks to the astonished terrestrial dwellers.
 
+Less numerous, although more constant in its annual return and referred to in legend as the "fiery tears of salvation" (Laurentius), is the maelstrom developing on the 10th of August from the constellation of Perseus. Compare this Perseid Swarm against the November Swarm, which pours forth from the leonine constellation and is called the Leonid Swarm by astronomers. The nights of April 18-20, June 26-30, and December 9-11 are also characterized by a high frequency of shooting stars.
+
 ...
