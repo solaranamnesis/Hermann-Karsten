@@ -28,4 +28,6 @@ It remained, therefore, as the most acceptable hypothesis of those remaining, wh
 
 Yet Chladni suspected a connection of the meteorites and shooting stars with the comets; an idea that, like most new ideas, met with fierce opposition but after fifty years of strong support it seems to be confirmed, as found in the calculations of the orbits of some swarms of shooting stars by [Giovanni] Schiaparelli.
 
+Throughout the year shooting stars are seen only as isolated, rapidly moving points of light, which cut through parallel paths of the fixed stars passing steadily and monotonously in the sky, however at certain times they appear to the surprised eye in great numbers, in whole swarms. The dense swarm appearing on November 12, according to H. A. [Hubert Anson] Newton's investigations, returns, at periods of 33 years, most brilliantly and numerous, appearing almost like sparks of lightning to the astonished terrestrial dwellers.
+
 ...
