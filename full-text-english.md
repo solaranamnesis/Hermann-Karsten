@@ -22,4 +22,6 @@ The French physicist [Jean-André] Deluc made the first attempt to find an expla
 
 The idea expressed by [Heinrich Wilhelm Matthias] Olbers in 1795, that these meteorolites are not ejecta of Earth's volcanoes, but those of the Moon, an idea which [Pierre-Simon] Laplace considered acceptable, and was confirmed by many mathematicians by calculation, since the possibility was not contradictory: nevertheless, it gave way in considering that all the necessary and favorable combinations in the positions of the Earth and Moon so that a single meteorite with incoming speed of about 2,300 meters per second would reach the Earth far too rarely to explain the numerous meteorites.
 
+Likewise, the opinion expressed by other researchers that meteorites are products of the atmosphere or congregations of atmospheric origin derived from the Earth's surface, could not be reconciled with the great distances, up to forty miles calculated for some flares, from which the meteorites fall to the Earth, and with the extraordinary thinning of the atmosphere at only an altitude of ten miles, where solid bodies could not stay in place to accumulate up to masses as heavy as those which fall down to the Earth.
+
 ...
