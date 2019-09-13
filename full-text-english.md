@@ -46,4 +46,6 @@ These chondrites, with their manifold undefinable inclusions, are now not merely
 
 Many of my readers will remember the notice about "The Primoridal Cell" published by the same author in 1879, i.e. about the simple organized bodies discovered in crystalline rocks. Who has read this book and not, regardless of his numerous depictions of the plants seen in the bedrock layers, entertained certain doubts! Even in meteorites, organisms and plant formations ought to be recognizable. Plants, one of which, akin to the algae and ferns, was described as _Urania Guilielmi_ in honor of the German Emperor and depicted on the 17th panel.
 
+Notwithstanding some opposition against his discovery, the author of both these treatises has, concious of his good cause, has not been discouraged from further pursuing his discovery. Hundreds of thin sections had to be made, scrutinized and compared to each other in order to confirm the prior result, and then to expand it, that some meteorites — indeed, in the available work Hahn mentions eighteen distinct ones from the chondrite set of meteor stones, whose fall times are well known — consist almost completely of a mixture of organisms. So it is the microscope, which, as predicted by [Friedrich August von] Quenstedt (Handbook of Mineralogy p. 722), has solved the enigma of the composition of the meteorites. 
+
 ...
