@@ -44,4 +44,6 @@ Microscopic research discovered in these stones a mixture of granular crystallin
 
 These chondrites, with their manifold undefinable inclusions, are now not merely conjectures; results from the most laborious research are contained in an epoch-making work: "The Meteorite (Chondrite) and its Organisms" by Dr. Otto Hahn, which recently left the Laupp'sche press in Tübingen, and places the view on the nature of the meteorites in a completely new and unexpected light.
 
+Many of my readers will remember the notice about "The Primoridal Cell" published by the same author in 1879, i.e. about the simple organized bodies discovered in crystalline rocks. Who has read this book and not, regardless of his numerous depictions of the plants seen in the bedrock layers, entertained certain doubts! Even in meteorites, organisms and plant formations ought to be recognizable. Plants, one of which, akin to the algae and ferns, was described as _Urania Guilielmi_ in honor of the German Emperor and depicted on the 17th panel.
+
 ...
