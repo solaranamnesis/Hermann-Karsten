@@ -60,7 +60,8 @@ An excellent, highly accurate physical description of these chondrites is given 
 
 Our author fully agrees with this judgment on the aggregate form of the meteorites, but with the reservation that, as we have said, those small spherical pear-shaped bodies, which are the main constituents of the stone meteorolites, are not individual minerals, but only organized ones, as well as almost the entire ripped and cracked silica matrix. In contrast to the meteorites described by Gümbel, in Knyahinya there is a slight shattered silica intermediate substance. "All Life" is a primeval forest or rather a small scale polyp and sponge forest, a chaos of forms grown on one another, almost oddly similar to present day, only everything infinitely smaller.
 
-...
+On 32 photographic plates, 142 illustrations depict a myriad of discovered organisms, amongst others of earthly creation, which were used for comparison. Unfortunately, our author has been tempted by an uncritical detractor to abandon his method of self-drawing as done in "The Primordial Cell" and to present only photographs for explanation and authentication, instead of his own drawings; both sidy by side would have satisfied the reader more! For as natural as photographic images depict a particular state, a certain area, which is precisely in the focus of the microscope, and if light and color conditions are favorable, they are insufficient to give an observer the idea of why this particular examined object maintains the characteristic, for which perspective drawings that he could recognize of the same are could be made by varying the focus (the visual range). 
 
+...
 
 
