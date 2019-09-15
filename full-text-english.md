@@ -70,4 +70,6 @@ This organism has been designated by Hahn as a coral; it is very similar to the 
 
 In any case, this body is not a druse of needle-shaped or columnar crystals, as the mineralogists used to think, but an organized entity; for real crystals that precipitate out of evaporating or cooling solutions are structureless and homogeneous.
 
+Of great interest to elucidating the nature of these organism of the meteorites are the highly similar structures recently discovered by Paul. F Reinsch in coal; a discovery that the gentleman editor had the kindness to bring to my knowledge.
+
 ...
