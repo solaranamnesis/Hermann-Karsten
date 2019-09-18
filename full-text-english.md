@@ -92,4 +92,6 @@ The fact that these meteorites, permeated with organized bodies, did not undergo
 
 Perhaps even the cosmic origin idea, at least for this type of meteorite, must be abandoned in favor of their formation as conglomerates of meteor dust or trade wind dust of similar material, as [Pieter van] Musschenbroek, Dominic Tata, [Eugène Louis Melchior] Patrin, [Ernst Friedrich] Wrede, Egen, v. Hof, Kesselmeyer and others would maintain, although the development of such a conglomerate with today's physical knowledge and experience cannot be followed in detail.
 
+These above-mentioned authors, Kesselmeyer quite superbly, consider the light-balls and falling meteorites as atmospheric sublimation structures of mineral fumes emitted by our volcanoes; and, admittedly, the chemist analyzing the volatility of all these mineral substances is at a great disadvantage in his quantitative analysis before this property of solid bodies is adequately discerned to exist, often only made perceptible in a regrettable way.
+
 ...
