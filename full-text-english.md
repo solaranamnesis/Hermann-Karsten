@@ -90,4 +90,6 @@ According to Hahn's view, the whole solid mass of the known celestial bodies is 
 
 The fact that these meteorites, permeated with organized bodies, did not undergo any melting temperatures before encountering our atmosphere is undoubtedly demonstrated by their structure as revealed in the microscope. Therefore, they entered our atmosphere in an unmelted, cold condition; formed in an another unknown distant place, they are now available to us.
 
+Perhaps even the cosmic origin idea, at least for this type of meteorite, must be abandoned in favor of their formation as conglomerates of meteor dust or trade wind dust of similar material, as [Pieter van] Musschenbroek, Dominic Tata, [Eugène Louis Melchior ] Patrin, [Ernst Friedrich] Wrede, Egen, v. Hof, Kesselmeyer and others would maintain, although the development of such a conglomerate with today's physical knowledge and experience cannot be followed in detail.
+
 ...
