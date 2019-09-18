@@ -86,4 +86,6 @@ In any case, the present book by Hahn, with the brilliant discovery of a new wor
 
 But regarding the already touched on idea of the terrestrial origin of the meteorites, I would like to again bring to mind the historically witnessed fireballs and meteorolites; would not these meteorolites be melted down to glass in their fall, if these bodies first came into being in the atmosphere only as trade wind dust?
 
+According to Hahn's view, the whole solid mass of the known celestial bodies is the product of organizing activity; according to Hahn, cells form out of the chaos of elements, which, in addition to the so-called organic elements (carbon, oxygen, hydrogen, nitrogen) also contain great amounts of inorganic elements, i.e. clays and metals, assimilating and incorporating them into their own mass. This energetic vegetation process of the organisms, spread through the entire vaporous and liquid mass of the forming celestial bodies, might also be the emissary of light production, similar to what we know of some luminous animals, plants, and hysterophytes (fission fungi) of our Earth, and that these light generating organisms would therefore gleam more where they are found together in great numbers. 
+
 ...
