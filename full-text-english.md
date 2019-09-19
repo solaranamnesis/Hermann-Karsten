@@ -94,4 +94,17 @@ Perhaps even the cosmic origin idea, at least for this type of meteorite, must b
 
 These above-mentioned authors, Kesselmeyer quite superbly, consider the light-balls and falling meteorites as atmospheric sublimation structures of mineral fumes emitted by our volcanoes; and, admittedly, the chemist analyzing the volatility of all these mineral substances is at a great disadvantage in his quantitative analysis before this property of solid bodies is adequately discerned to exist, often only made perceptible in a regrettable way.
 
+Furthermore, any visitor of an active volcano knows the interesting phenomena of the continuous steam of these often glowing volcanoes at night time. With water at the same time, which constitutes the greater part of this vapor, welling up the steady resistant crater, pulverized or vaporous elements of the rocks, which is pervaded by the blistering mineral water steam: pulverized masses, so-called volcanic ash, which during high activity add molten rock to the more or less comprehensive rock fragments.
+
 ...
+
+
+
+
+
+
+
+
+
+
+
