@@ -106,4 +106,4 @@ The diversity of the shooting stars and light flares indicates an extraorindary 
 
 There still remains much to be observed; for the moment, in accordance with Hahn's procedures, all the meteorites should once again be thoroughly examined.
 
-If this were the only result of Hahn's work, then the gratitude of science would be due for this suggestion; however, his merit, by discovering the organized nature of the greater part of the meteorites, is a positive one and only wish that he actively proceeds down the path he has entered.
+If this were the only result of Hahn's work, then the gratitude of science would be due for this suggestion; however, his merit, by discovering the organized nature of the greater part of the meteorites, is a positive one and only wish that he actively proceeds down this path.
