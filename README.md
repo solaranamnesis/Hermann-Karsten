@@ -1,6 +1,6 @@
 # Dr. Gustav Karl Wilhelm Hermann Karsten (1817 - 1908).
 
-## DIE METEORITE UND IHRE ORGANISMEN (1881)
+## Die Meteorite und ihre Organismen (1881)
 
 ## The Meteorite and its Organisms.
 
