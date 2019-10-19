@@ -1,4 +1,4 @@
-# THE METEORITE AND ITS ORGANISMS
+# THe Meteorite and its Organisms
 
 ## By Professor Dr. Hermann Karsten
 
