@@ -1,4 +1,4 @@
-# DIE METEORITE UND IHRE ORGANISMEN
+# Die Meteorite und ihre Organismen
 
 ## VON
 
