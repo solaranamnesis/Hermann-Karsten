@@ -1,8 +1,6 @@
 # Dr. Gustav Karl Wilhelm Hermann Karsten (1817 - 1908).
 
-## Die Meteorite und ihre Organismen (1881)
-
-## The Meteorite and its Organisms.
+## The Meteorite and its Organisms (1881)
 
 Dr. Gustav Karl Wilhelm Hermann Karsten wrote a paper published in Nature in 1881 disscussing meteorites and the work of Dr. Otto Hahn.
 
