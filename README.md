@@ -9,4 +9,4 @@ Attempt at a translation of Dr. Hermann Karsten's 1881 work: "Die Meteorite und 
 [English - Plain Text](DIE-METEORITE-UND-IHRE-ORGANISMEN/full-text-english.md)  
 [English - PDF](https://cdn.solaranamnesis.com/HermannKarsten/herman_karston_die_meteorite_und_ihre_organismen_english_PDFlaTex.pdf)  
 [German - Plain Text](DIE-METEORITE-UND-IHRE-ORGANISMEN/full-text-german.md)  
-[German - PDF](https://cdn.solaranamnesis.com/HermannKarsten/herman_karston_die_meteorite_und_ihre_organismen_german_PDFlaTex.pdf)  
+[German - PDF](https://cdn.solaranamnesis.com/HermannKarsten/herman_karston_die_meteorite_und_ihre_organismen_german_PDFlaTex.pdf) | [Fraktur](https://cdn.solaranamnesis.com/HermannKarsten/herman_karston_die_meteorite_und_ihre_organismen_german_PDFlaTex-frak.pdf) | [Schwabacher](https://cdn.solaranamnesis.com/HermannKarsten/herman_karston_die_meteorite_und_ihre_organismen_german_PDFlaTex-swab.pdf)  
